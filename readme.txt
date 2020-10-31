@@ -1,0 +1,2 @@
+The skeleton has been established using a particular template, the whole thing is modified and customized to the optimum level.
+The animations are my own doing. It has been ensured that no images that has been used violate any copyright.
